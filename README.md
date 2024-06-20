@@ -3,8 +3,6 @@ We have AvPD and dyslexia,
 please be mindful when interacting.
 it / its , hy / hym ..
 
-[ https://rentry.co/intangledwires ]
-
 A few of our interests are –
 Don't Starve , UTdr , Regretevator ,
 GoBB , & IHNMAIMS
