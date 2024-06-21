@@ -3,7 +3,7 @@ We have AvPD and dyslexia,
 please be mindful when interacting.
 it / its , hy / hym .. very, very bad at interacting verbally..
 
-our discord is playfood , feel free to add or friend us,,! (before/if you do, please read our linked rentry)
+Our discord is playfood , feel free to add or friend us! (Before/If you do, please read our linked rentry)
 
 A few of our interests are –
 Don't Starve , UTdr , Regretevator ,
