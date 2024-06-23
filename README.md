@@ -1,7 +1,7 @@
 SOLSTICE, or sol.
 We have AvPD and dyslexia,
 please be mindful when interacting.
-it / its , hy / hym .. very, very bad at interacting verbally..
+it / its , hy / hym .. very, very bad at interacting verbally.. sorry ii we're awkward n shit..
 
 Our discord is playfood , feel free to add or friend us! (Before/If you do, please read our linked rentry)
 
