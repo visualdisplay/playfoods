@@ -1,18 +1,14 @@
-SOLSTICE, or sol.
-We have AvPD and dyslexia,
-please be mindful when interacting.
-it / its , hy / hym .. very, very bad at interacting verbally.. sorry ii we're awkward n shit..
+->![divider /start /devils-knife](https://3233.carrd.co/assets/images/image39.png?v=e035c322)<-
+->![jevil graphic /art credits to huecycles](https://3233.carrd.co/assets/images/image40.png?v=e035c322)<-
+->%#40821D% *or*%%⠀⠀⠀![SOLSTICE](https://3233.carrd.co/assets/images/image42.png?v=e035c322)<-
+->%#40821D% !~ it ~! ⠀୨ৎ⠀⠀/ix' **/hym** ![book decor /purple](https://64.media.tumblr.com/659fd7c50e2b8ba2bc079debcf0dc59b/c14378824fd1614e-df/s75x75_c1/1972cf9029b2ac5cc585fa7c76189839c1c145db.gifv) in~~hu*man*~~%% <-
 
-Our discord is playfood , feel free to add or friend us! (Before/If you do, please read our linked rentry)
+->%purple% [*୨ৎ “ NO ONE HERE IS REALLY EVER FREE”*](https://on.soundcloud.com/MQNZk)%%<-
 
-A few of our interests are – Jevil, UTDR
-Don't Starve, UTdr, Regretevator,
-GoBB, IHNMAIMS, Jesters, Robots, and many others we may have forgotten..
-![alt text: a userbox with an image of AM or the hate monolith, text in the box says: Because in all this beautiful, miraculous world, i alone had no body. :end alt text](https://64.media.tumblr.com/0557700d895a7b8695824a07b510ce77/c76c7c0dbe4d7ba7-10/s2048x3072/e120799b6ee3e2fb7363452970e7ca107b970467.pnj)
-![alt text: a stamp, a gif of WX-78 plays, i am not the best at describing videos.. apologies :end alt text](https://3233.carrd.co/assets/images/image21.gif?v=bb2a497f)![alt text: a stamp of a captcha, the captcha is almosy incomprehensible.](https://64.media.tumblr.com/d94993da2bdab08887b3ffbe60381f53/a200edbed2b101ab-0b/s100x200/f2fed2bba8ac73eccf8ac1ef075faae4bedbbec9.gifv)![alt text: a stamp, gif of wormwood plays, again, not the beat at describing videos.](https://3233.carrd.co/assets/images/image22.gif?v=bb2a497f)
+->%#40821D% !~ ageless ~! ⠀⠀**jevil**kin ![bow decor /purple](https://64.media.tumblr.com/86b71f485ebf1fa52cd5039a2d6b9167/36f5e1ad0f5c87a2-ed/s75x75_c1/77d7f6ce88835b831dbfe88606011b1480465ec9.gifv) a!~ pan ~!*gender* ~~gay~~bian
+*seavil* doomed yuri~~&~~spam**vil** toxic yaoi truther
+**AD**HD, Av~~PD~~ & ***dys****lexic*%%<-
 
-
-<!---
-playfoods/playfoods is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+->%purple% [*“ BUT ME, AND ME AND ME ALONE,
+YOU SHOULD ATONE, FOR ANARCHY IS KING!”*](https://on.soundcloud.com/MQNZk)%%<-
+->![divider /end](https://3233.carrd.co/assets/images/image41.png?v=e035c322)<-
